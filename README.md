@@ -1,2 +1,1 @@
-# knjojhi-
-bvivcgtu
+<B>ORACLE</B>
